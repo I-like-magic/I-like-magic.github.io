@@ -1,1 +1,1 @@
-# I AK IOI
+# [关于数组](/discuss/682457/page1.mhtml)
